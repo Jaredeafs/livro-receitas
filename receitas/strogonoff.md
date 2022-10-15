@@ -13,7 +13,9 @@
  - 1 copo de creme de leite
  - batata palha a gosto
 <br>
+
 ## MODO DE PREPARO
+
 <br>
 1- Em uma panela, misture o frango, o alho, a maionese, o sal e a pimenta.
 
